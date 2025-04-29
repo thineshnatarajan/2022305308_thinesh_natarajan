@@ -1,1 +1,0 @@
-# Mr.-Medio-AI-medpub
